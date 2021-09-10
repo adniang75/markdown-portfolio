@@ -1,0 +1,1 @@
+![Image of Alassane NIANG](https://media-exp1.licdn.com/dms/image/C4D03AQEn3Tx3EaHIeQ/profile-displayphoto-shrink_400_400/0/1558800905344?e=1636588800&v=beta&t=FnFIEtlNeuXHv0z8BdyfHXZIZgS4rLkCFEAngeBWXY4)
