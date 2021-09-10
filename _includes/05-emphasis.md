@@ -1,1 +1,7 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+# A little bit of me ... 
+
+Java **Lover** :heart:
+
+**Open** to learn any new _technologies_ 🧑‍💻 👨‍🎓 💻 
+
+etc.
